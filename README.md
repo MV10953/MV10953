@@ -1,4 +1,4 @@
-*###Boas-vindas ao meu perfil 💙*
+*###Boas boas-vindas ao meu perfil 💙*
 
 Meu nome é Mayra
 
